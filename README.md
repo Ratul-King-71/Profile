@@ -10,9 +10,9 @@
 
 - 🌱 I’m currently learning **RATUL-KING-71**
 
-- 👯 I’m looking to collaborate on [Akash Chowdhury](https://www.facebook.com/profile.php?id=100071621533349)
+- 👯 I’m looking to collaborate on [Ratul King]([https://www.facebook.com/profile.php?id=100091493705124&mibextid=ZbWKwL]
 
-- 🤝 I’m looking for help with [Facebook Group](https://www.facebook.com/groups/985357539240789/?ref=share)
+- 🤝 I’m looking for help with [Facebook Group]([https://www.facebook.com/groups/985357539240789/?ref=share]
 
 - ⚡ Fun fact **😆I Am Funny Boy**
 
